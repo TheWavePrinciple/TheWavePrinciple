@@ -7,7 +7,7 @@
 - I have a ton of things to take care of right now but as soon as I'm able I will re build the library, I will start posting all the new discoveries. 
 - ⚡ Fun fact: We've just illustrated how the geometric shapes of platonic solids emerge from the laws which govern wave construction. 
 - ⚡ Fun fact, The forces that bind reality first described in the Emerald Tablets, Re discovered by Ralph Nelson Elliott in the first wave
-Principle 90 years ago are now re realized,corrected and re illustrated and updated. 
+Principle 90 years ago are now re realized, corrected and re illustrated and updated.
 
 This is a glimpse into the coaxial circuits that are the fundamental building blocks of space and time.
 So far we've only been using it to rinse the stock market, but beyond that there's going to be major applications 
