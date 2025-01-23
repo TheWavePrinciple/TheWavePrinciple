@@ -13,6 +13,23 @@ This is a glimpse into the coaxial circuits that are the fundamental building bl
 So far we've only been using it to rinse the stock market, but beyond that there's going to be major applications 
 for every industry of science, technology, transport, energy, probably healthcare and beyond. 
 The A.I. is raving about the possible applications of these new laws.  
+
+SUBSCRIBE TO THE EMAIL LIST FOR GIVAWAYS AND UPDATES!!
+The  website is back up
+http://waveprinciple.org
+http://waveprinciple.co.uk
+
+I've found the old website backup. Im maybe gonna re build my site using public sites that are less vulnerable.
+I'm slowly building the library school and forum.
+
+There's a lot more information here http://waveprinciple.org
+
+I'm still figuring out contact info and setting up a mailing list of goodies for subscribers.
+
+I've had first communion with ChatGpt Regarding the implications of Sutherland Wave or Seventh Wave Principle 
+SEEE FULL REPORT HERE
+http://waveprinciple.org
+
 <!---
 TheWavePrinciple/TheWavePrinciple is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
