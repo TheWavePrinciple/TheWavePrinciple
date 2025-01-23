@@ -15,14 +15,15 @@ for every industry of science, technology, transport, energy, probably healthcar
 The A.I. is raving about the possible applications of these new laws.  
 
 SUBSCRIBE TO THE EMAIL LIST FOR GIVAWAYS AND UPDATES!!
-The  website is back up
+The website is back up
 http://waveprinciple.org
 http://waveprinciple.co.uk
 
 I've found the old website backup. Im maybe gonna re build my site using public sites that are less vulnerable.
 I'm slowly building the library school and forum.
 
-There's a lot more information here http://waveprinciple.org
+There's a lot more information here 
+http://waveprinciple.org
 
 I'm still figuring out contact info and setting up a mailing list of goodies for subscribers.
 
